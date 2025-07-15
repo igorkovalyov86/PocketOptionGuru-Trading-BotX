@@ -1,0 +1,1 @@
+# PocketOptionGuru-Trading-BotX
